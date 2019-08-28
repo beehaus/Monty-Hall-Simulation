@@ -14,3 +14,5 @@ Good idea to start at 20-30 bpm, then tweak using swing and scales.
 link up to some funky synths … developed using AUM and ‘s t r n g’ and the Thumbjam
 
 Lots of little tweaks in script, have fun playing and i hope it inspires.
+
+https://youtu.be/XUIz_3cx4vM
